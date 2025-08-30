@@ -53,7 +53,7 @@ I love building things that people interact with – from sleek **web apps** to 
 ---
 
 ### 🌐 Connect
-- 💼 [LinkedIn](https://linkedin.com/in/vansh-maheshwari)  
+- 💼 [LinkedIn](https://www.linkedin.com/in/vansh-maheshwari931/)  
 - 📧 maheshwarivansh931@gmail.com  
 - 🐙 [GitHub](https://github.com/Vansh931)  
 
